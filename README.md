@@ -1,0 +1,1 @@
+Whether you’re cutting wood for your fire pit or seasonal pruning, battery-powered chainsaws are the go-to choice for homeowners who need an easy-to-use tool. Over the course of six months, we put eight popular chainsaws from top brands such as Ego, DeWalt, Husqvarna, and Milwaukee to the test, clearing up storm damage and pruning trees.
